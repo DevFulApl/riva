@@ -130,8 +130,3 @@ Dia 5:
 
 ---
 
-✅ Com esse plano, você terá **entrada constante de leads via anúncios**, **conteúdo social para engajar** e um **roteiro de WhatsApp para converter visitas em contratos**.
-
----
-
-Quer que eu prepare também um **modelo de planilha/CRM simples** (com etapas do funil e lembretes automáticos) para você organizar seus contatos em Manaus?
