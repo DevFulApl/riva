@@ -1,5 +1,3 @@
-Ótimo 🚀 Então vamos montar um **plano prático de campanhas para Direcional em Manaus**, incluindo: **anúncios, posts e roteiro de WhatsApp para corretores**.
-Fiz focado no público do **Minha Casa Minha Vida (faixas até R$ 4.400 de renda familiar)**, que é onde a Direcional tem mais força na região.
 
 ---
 
